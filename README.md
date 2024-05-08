@@ -1,3 +1,4 @@
+![DIDI](https://historiotheque.files.wordpress.com/2024/05/didi_logo_2024_800px.png)
 # DIDI
 __*"D.I.D.I.", The Distributed International Design Initative: A global hub for cultural innovation, preservation, and dissemination, uniting diverse talents to shape the future of creativity worldwide.*__
 
